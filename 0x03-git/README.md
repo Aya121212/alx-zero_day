@@ -1,2 +1,2 @@
 new chance
-lol
+lol oh
